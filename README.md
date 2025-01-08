@@ -220,4 +220,4 @@ Contributions are welcome!
 
 ## Contact
 
-For any inquiries or support, please contact [Your Name].
+For any inquiries or support, please contact Chetas Parekh @chetas1208.
